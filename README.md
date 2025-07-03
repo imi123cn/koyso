@@ -2,7 +2,7 @@
 <p>
   Koyso是一款专注于提供免费单机PC游戏资源的下载网站，其核心功能是为用户提供海量、无限制的高质量游戏资源下载服务。自成立以来，该网站凭借其简洁直观的界面设计和便捷的下载方式，赢得了大量玩家的青睐。Koyso网站收录了多种类型的热门游戏，包括动作游戏、冒险游戏、射击游戏、休闲游戏、角色扮演游戏和模拟经营游戏等，满足不同用户的需求。无论是新手玩家还是资深玩家，都可以在Koyso找到适合自己的游戏资源。此外，Koyso还提供了详细的下载教程、安装指南以及游戏分类功能，帮助用户快速找到所需的游戏资源。网站的下载速度极快，支持直链下载，无需注册或登录，操作简单，用户体验良好。Koyso的资源更新迅速，覆盖了Steam平台上的热门游戏如《艾尔登法环》、《赛博朋克2077》、《荒野大镖客》等，同时也有许多独立游戏资源可供下载。总之，Koyso是一个功能全面、资源丰富且使用便捷的免费游戏下载网站。
 </p>
-<p><strong>一键访问：</strong><a href="https://www.imi123.cn/sites/4507.html" target="_blank"><strong>Koyso游戏官网最新网址</strong></a></p>
+<p><strong>一键访问：</strong><a href="https://koyso.wwwnav.com/" target="_blank"><strong>Koyso游戏官网最新网址</strong></a></p>
 <p><strong>一键访问：</strong><a href="https://wangpanziyuan.pages.dev/" target="_blank"><strong>电子书/4K电影/无损音乐资源下载资源包</strong></a></p>
 <p><strong>一键访问：</strong><a href="http://ip.harmonylink.net/share/e82025" target="_blank"><strong>海外代理网络·可看蓝光4K影视</strong></a></p>
 <p><strong>网站功能特点</strong></p>
